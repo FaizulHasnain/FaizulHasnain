@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hey :)
 
 
 - 🌱 Currently learning **Web Development (HTML, CSS, JavaScript)**  
