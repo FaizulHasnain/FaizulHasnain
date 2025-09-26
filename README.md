@@ -9,7 +9,7 @@
 
 - 🎯 Goal: **Become a well rounded Developer and Cyber-Security specialist**
 
-- 📫 How to reach me **smfaizulhasnain101@gmail.com**
+- 📫 Reach me here: **smfaizulhasnain101@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
